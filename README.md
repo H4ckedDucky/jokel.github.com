@@ -1,2 +1,4 @@
-# Serafim Stinkt
-## Serafim ist ein Hund
+#Offiziele Seite des lieben Serafims...
+```
+Du hund du
+```
